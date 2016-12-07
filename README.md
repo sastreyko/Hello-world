@@ -3,3 +3,6 @@
 gogi
 mother is going to hospital
 meeting with docktor
+piu piu
+baksing 
+dogs
